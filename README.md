@@ -1,6 +1,6 @@
 # DIY Playing Cards Decoration
 
-In this pctivity, you'll be creating your own set of custom playing cards. Follow the instructions below to design and customize your unique deck.
+In this activity, you'll be creating your own set of custom playing cards. Follow the instructions below to design and customize your unique deck.
 
 ## Instructions:
 
